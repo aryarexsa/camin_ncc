@@ -1,5 +1,6 @@
 # camin_ncc
 Semoga saya lolos, ngoding sampai jam 3 pagi :)
+Note: kalau saya tidak join zoom berarti belum bangun, tolong agar bisa direschedule untuk presentasi saya, thank u :)
 
 referensi: 
 
